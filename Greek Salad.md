@@ -2,4 +2,4 @@ Greek Salad Ingredients:
 
 - Olives
 - Tomatoes
-- Cheese
+- Feta Cheese
